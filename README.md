@@ -1,8 +1,7 @@
 welcome to my github      
 (づ￣ ³￣)づ 
 he/him/his 20/7/2005           
-this is where I keep all my awesome links
-https://linktr.ee/admin
+this is where I keep all my awesome links!!!!! 
 
 coding is for nerds😈😈😈😈!!! 
 <!---
